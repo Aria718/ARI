@@ -1,0 +1,2 @@
+# ARI
+ARI`S BLOG
